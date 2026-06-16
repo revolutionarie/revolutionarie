@@ -21,7 +21,7 @@ discord is @<ins>screaturecreature</ins> (guess who picked the username? ...sigh
 dms are usually open but dont expect me to respond<br>
 i rarely accept friend requests
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀꒰ extra ꒱<br>
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀ ꒰ extra ꒱<br>
 free palestine and all those suffering. here are some [resources](https://docs.google.com/document/d/1S_EA9f7buyt680AWZIwP0-IFj1qbVFdzT0ZBtGeAVv4/edit?tab=t.0#heading=h.ur12yr80ujwc) <br>
 please educate yourself on the topic or help in any way.<br>
 (also includes information & links on congo, sudan, haiti, etc)
