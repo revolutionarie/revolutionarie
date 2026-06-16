@@ -14,7 +14,7 @@ do not fucking copy any of my skins dont get inspo either
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[prns.cc](https://pronouns.cc/@Hamza/screech) ⠀⠀ [straw](https://screature.straw.page/) ⠀⠀ [ata](https://screech.atabook.org/)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ponytown⠀⠀info𓈒 ꒱<br>
-???? i dont fuckign know bruh i'll wait until she fronts so he can put it in himself
+???? i dont fuckign know bruh she can put it in himself when he fronts💔
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀꒰ contact ꒱<br>
 discord is @<ins>screaturecreature</ins> (guess who picked the username? ...sigh)<br>
@@ -24,4 +24,5 @@ i rarely accept friend requests
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀ ꒰ extra ꒱<br>
 free palestine and all those suffering. here are some [resources](https://docs.google.com/document/d/1S_EA9f7buyt680AWZIwP0-IFj1qbVFdzT0ZBtGeAVv4/edit?tab=t.0#heading=h.ur12yr80ujwc) <br>
 please educate yourself on the topic or help in any way.<br>
-(also includes information & links on congo, sudan, haiti, etc)
+(also includes information & links on congo, sudan, haiti, etc)<br>
+<img width="609" height="60" alt="borderflip" src="https://github.com/user-attachments/assets/bed9abec-a0c7-4e3d-a7a3-ee7647683e74" />
