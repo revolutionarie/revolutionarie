@@ -17,7 +17,7 @@ do not fucking copy any of my skins dont get inspo either
 ???? i dont fuckign know bruh she can put it in himself when he fronts💔
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀꒰ contact ꒱<br>
-discord is @<ins>screaturecreature</ins> (guess who picked the username? ...sigh)<br>
+discord is @<ins>screaturecreature</ins> (guess who chose the username sigh)<br>
 dms are usually open but dont expect me to respond<br>
 i rarely accept friend requests
 
