@@ -14,7 +14,9 @@ do not fucking copy any of my skins dont get inspo either
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[prns.cc](https://pronouns.cc/@Hamza/screech) ⠀⠀ [straw](https://screature.straw.page/) ⠀⠀ [ata](https://screech.atabook.org/)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ponytown⠀⠀info𓈒 ꒱<br>
-???? i dont fuckign know bruh she can put it in himself when he fronts💔
+interact plpslsls!!!! i love c+h i love boops i love kisses i love talking even if i migbt be awkward<br>
+i dont rlly care about inspo or copy hi<br>
+to anyone readjnfntjis I LOVE U i hope u will be happy an djoyful<br>
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀꒰ contact ꒱<br>
 discord is @<ins>screaturecreature</ins> (guess who chose the username sigh)<br>
