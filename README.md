@@ -7,6 +7,7 @@ $\color{lightgray}{\text{check status 4 whos fronting. 🐏 = hamza, 🌈 = scre
 $\color{#82807f}{\text{int is ok but im usually offtab. i'll probably be dry + stop responding after a while}}$<br>
 $\color{#82807f}{\text{im iffy about c+h from strangers but i dont care that much. oomfs can always c+h.}}$<br>
 $\color{#82807f}{\text{boops and kisses are ok from anyone who isnt in DNI}}$ <br>
+$\color{#82807f}{\text{dont cover me ever it pmo }}$<br>
 $\color{#82807f}{\text{usually iwc unless we are close friends (which, we probably arent)}}$<br>
 $\color{#82807f}{\text{do not fucking copy any of my skins dont get inspo either}}$
 
