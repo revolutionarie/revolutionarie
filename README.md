@@ -9,7 +9,8 @@ $\color{#82807f}{\text{im iffy about c+h from strangers but i dont care that muc
 $\color{#82807f}{\text{boops and kisses are ok from anyone who isnt in DNI}}$ <br>
 $\color{#82807f}{\text{dont cover me ever it pmo }}$<br>
 $\color{#82807f}{\text{usually iwc unless we are close friends (which, we probably arent)}}$<br>
-$\color{#82807f}{\text{do not fucking copy any of my skins dont get inspo either}}$
+$\color{#82807f}{\text{do not fucking copy any of my skins dont get inspo either}}$<br>
+$\color{#82807f}{\text{dont roleplay with me , also id prefer not to be called the name of wtv skin im using}}$
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀꒰ <ins>screech</ins>'s ⠀⠀ pages𓈒<br>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[prns.cc](https://pronouns.cc/@Hamza/screech) ⠀⠀ [straw](https://screature.straw.page/) ⠀⠀ [ata](https://screech.atabook.org/)
