@@ -1,6 +1,6 @@
 <img width="609" height="60" alt="IMG_1139" src="https://github.com/user-attachments/assets/b54ce066-8d5f-4d68-b9e7-680e48b64ed2" /> <br>
 $\color{lightgray}{\text{check status 4 whos fronting}}$<br>
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀꒰ hamza's ⠀⠀ pages𓈒<br>
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀꒰ <ins>hamza</ins>'s ⠀⠀ pages𓈒<br>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[prns.cc](https://pronouns.cc/@Hamza)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ponytown⠀⠀info𓈒 ꒱<br>
@@ -10,7 +10,7 @@ $\color{#82807f}{\text{boops and kisses are ok from anyone who isnt in DNI}}$ <b
 $\color{#82807f}{\text{usually iwc unless we are close friends (which, we probably arent)}}$<br>
 $\color{#82807f}{\text{do not fucking copy any of my skins dont get inspo either}}$
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀꒰ screech's ⠀⠀ pages𓈒<br>
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀꒰ <ins>screech</ins>'s ⠀⠀ pages𓈒<br>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[prns.cc](https://pronouns.cc/@Hamza/screech) ⠀⠀ [straw](https://screature.straw.page/) ⠀⠀ [ata](https://screech.atabook.org/)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ponytown⠀⠀info𓈒 ꒱<br>
