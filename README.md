@@ -1,7 +1,7 @@
 <img width="609" height="60" alt="IMG_1139" src="https://github.com/user-attachments/assets/b54ce066-8d5f-4d68-b9e7-680e48b64ed2" /> <br>
 $\color{lightgray}{\text{check status 4 whos fronting. 🐏 = hamza, 🌈 = screech}}$<br>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀꒰ <ins>hamza</ins>'s ⠀⠀ pages𓈒<br>
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[prns.cc](https://pronouns.cc/@Hamza)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀ [prns.cc](https://pronouns.cc/@Hamza) ⠀⠀ [straw](https://spritzer.straw.page/)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ponytown⠀⠀info𓈒 ꒱<br>
 $\color{#82807f}{\text{int is ok but im usually offtab. i'll probably be dry + stop responding after a while}}$<br>
